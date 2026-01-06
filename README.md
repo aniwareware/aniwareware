@@ -3,7 +3,7 @@ I DONTK NOW HOW 2 USE GITHUB and imtoo lazy2 make this look cute ill fix it some
 hi this is a ponytown thing ignore if youre not from ponytown !!!!!!!
 
 please WHISPER if u wanna chat because i am offtab 99% of the time so i might miss your messages .
-. . also i am incredibly awkward around strangers but just bare with me im cool i swear
+. . also i am incredibly awkward around strangers but just bare with me im cool i swear ! @_@
 
 DNI!!!!!!!! :
 
