@@ -1,4 +1,4 @@
-I DONTK NOW HOW 2 USE GITHUB WAAGHHHH WHAT AM I DOIGN ill make this cuter l8r
+I DONTK NOW HOW 2 USE GITHUB and imtoo lazy2 make this look cute ill fix it sometime
 
 hi this is a ponytown thing ignore if youre not from ponytown !!!!!!!
 
